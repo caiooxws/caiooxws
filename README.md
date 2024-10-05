@@ -2,9 +2,9 @@
 
 -Jogador profissional de futsal
 
--Aluno do KPG BEATS
-
 -Ambidestro (ruim com as duas)
+
+-Aluno do KPG BEATS
 
 -Sou bom progamador (contra crianças)
 
